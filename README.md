@@ -1,0 +1,2 @@
+Taller presencial evaluable
+
